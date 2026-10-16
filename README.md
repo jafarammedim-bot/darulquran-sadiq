@@ -1,1 +1,1 @@
-# darulquran-sadiq
+# darulquran-emam-sadiq
